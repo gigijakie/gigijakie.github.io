@@ -1,1 +1,0 @@
-# gigijakie.github.io
